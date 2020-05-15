@@ -61,7 +61,7 @@ It was almost sunset and Dr Hans intently stared through the glass window holdin
 
 ## The Eurasian Bear Encounter
 
-<img src="images/bear3.jpg" alighn="right" width="50%"> Tracy's academic knowledge took over and she began to shout at the bear while frantically jumping up and down. "Hey bear, go away, I'm not your food. I'm too skinny anyways. hey bear. leave this place. go away." she shouted while yet slowly inching her way towards the Jeep. The bear stopped and look intently at her while yet sniffing the air above. The bear looked calm without fear and without distraction, possibly wondering what this noisy animal was. 
+<img src="images/bear3.jpg" align="right" width="50%"> Tracy's academic knowledge took over and she began to shout at the bear while frantically jumping up and down. "Hey bear, go away, I'm not your food. I'm too skinny anyways. hey bear. leave this place. go away." she shouted while yet slowly inching her way towards the Jeep. The bear stopped and look intently at her while yet sniffing the air above. The bear looked calm without fear and without distraction, possibly wondering what this noisy animal was. 
 
 Her throat muscles tightened from the tension and anxiety, her heart still pounding in her chest, Tracy lifted up her hands high above her head hoping it would make her look bigger and shouted once again. She was now just 10 yards away from the Jeep, but the bear appeared to be even closer. Her heart pounding hard in her chest, she could feel the beads of sweat drip off her nose. An academic thought popped into her "do not show fear... do not show fear.. it can smell the hormones in the air... in can smell fear.. control yourself Tracy... breathe.." she said to herself..
 
