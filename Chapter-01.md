@@ -5,5 +5,5 @@
 >>>> This is a block quote of a some paragraph. This is a block quote of a some paragraph. 
 
 ## This is starting something
-Here's an Image 
-![Tux the Mascot](images/ramph.jpg)<!-- .element height="50%" width="50%" -->
+![Tux the Mascot]<img src="images/ramph.jpg" width="50%">Here's an Image This is a block quote of a some paragraph. This is a block quote of a some paragraph. This is a block quote of a some paragraph. This is a block quote of a some paragraph. This is a block quote of a some paragraph. This is a block quote of a some paragraph. 
+
