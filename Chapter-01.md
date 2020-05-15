@@ -1,10 +1,8 @@
 # Chapter 1
 
-> "If the whole universe has no meaning, we should never have found out that it has no meaning: just as, if there were no light in the universe and therefore no creatures with eyes, we should never know it was dark. Dark would be without meaning." 
-
->>> -- C.S. Lewis
-
-## Morning - Badlands of Arizona
+| <font color=#fff>Blank Space </font> | Quote |
+|-------:|------------:|
+| <br/> |  "If the whole universe has no meaning, we should never have found out that it has no meaning: just as, if there were no light in the universe and therefore no creatures with eyes, we should never know it was dark. Dark would be without meaning."<br/><br/> -- C.S. Lewis|
 
 As the morning sun arose over the horizon, her eyes caught the sparkling dew drops on the green grass.  It has been 2 years since she completed her field ornithology thesis, and 8 months since she returned to the Jura mountains which was just 45 minutes away from the concrete jungle she called home. The scenic view was unmatched by any standard; and driving through the winding hillside roads with the distant snowy mountains peaking above the tall green roadside foliage made it even more mesmerizing.
 
@@ -34,8 +32,9 @@ Looking around, she thought she caught a glimpse of something moving in the dist
 
 The forest was wide with cypress trees growing every 10 feet with tangled wines falling from above. The Jeep was within eye contact, just momentarily disappearing around the shrubs only to reappear once again. She continued to move forward slowly.... 40 yards to the jeep.... 30 yards to the Jeep... 20 yards to the Jeep.... Her heart was still pounding from the adrenalin rush as she pondered the thoughts of been mauled to death by a bear. She was now walking through soft sediment along the waters edge, and it felt awkward trying to move through the muddy banks of the stream that sank her leather boots up to her ankle.. She thought to herself -There was no way to outrun a full grown brown bear as they have been clocked at 30 mph on the open planes. The only educated option would be to stand your ground and make enough noise to warn the bears of pending human encounters. Of course it would also spell out 'dinner is ready' to every bear in the county.. Hence that thought was not completely forthcoming for Tracy as she quietly moved along the banks counting.. Just 20 yards to safety but it looked so far away, and then through the green foliage, directly above the rocky outcrop, a large black shadow stumbled into clear view. Tracy turned her head to look at the shadow and froze.
 
-> Science & Religion are not incompatible. Its the ignorance of Science & Religion that makes it incompatible. 
->>> --- Dr. Hans Infallibus
+| <font color=#fff>Blank Space </font> | Quote |
+|-------:|------------:|
+| <br/> |  Science & Religion are not incompatible. Its the ignorance of Science & Religion that makes it incompatible. <br/><br/> --- Dr. Hans Infallibus|
 
 ## The Coffeecup
 
@@ -73,8 +72,10 @@ Tracy looked through the window and realized the bear was trying to gently push 
 
 She looked in the rear view mirror and saw the brown giant nibbling on the berries amongst the green foliage that soon disappeared from sight as she curved along the winding hill.
 
-> Business is a game, played for fantastic stakes. And your competing against the experts. If you want to WIN, you need to learn to be the master of the game.
->>>  --- Sydney Sheldon
+| <font color=#fff>Blank Space </font> | Quote |
+|-------:|------------:|
+| <br/> |  Business is a game, played for fantastic stakes. And your competing against the experts. If you want to WIN, you need to learn to be the master of the game. <br/><br/> --- Sydney Sheldon|
+
 
 ## Paul Longhorn
 
