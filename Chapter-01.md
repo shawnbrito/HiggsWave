@@ -6,4 +6,4 @@
 
 ## This is starting something
 Here's an Image 
-![Tux the Mascot](images/ramph.jpg){:width="100%"}
+![Tux the Mascot](images/ramph.jpg)<!-- .element height="50%" width="50%" -->
