@@ -6,4 +6,4 @@
 
 ## This is starting something
 Here's an Image 
-![Tux the Mascot](images/ramph.jpg)
+![Tux the Mascot](images/ramph.jpg =250x)
