@@ -41,9 +41,8 @@ Dr. Erwin stood perplexed as to what was going on, still unaware of the drama th
 
 "Dr Ervin", said Denis in a startled voice, "I can’t get any readings from the Muon Solenoid. I believe the connections may have been severed during the power surge, I'll go and check"
 
-"Hey Denis", said Steve softly, "I think you should have a look at the surveillance camera. There’s something down there. I just saw it move across the pipes. There it is again, its a big long something.". 
+"Hey Denis", said Steve very softly, "I think you should first have a look at the surveillance camera. There’s something down there. I just saw it move across the pipes. There it is again, its a big long something."
 
-The coolant gas was fogging the camera's view and prevented anyone from getting a better look at the damage. Dr Ervin was still unaware of the extent of the damage, as the engineers largely kept things to themselves, fearing that he might discontinue their research and possibly remove them completely from the project.
-
+The coolant gas was fogging the camera's view and prevented anyone from getting a better look at the damage. Dr Ervin was still unaware of the extent of the damage, as the engineers largely kept things to themselves. Fearing that he might discontinue their research and possibly remove them completely from the project.
 
 Back at the lonely corridor, Jack stooped down to put aside the cleanex and started advancing towards the stairway. He shouted hoping for a response "Anyone there?". But no response came, except a soft rustle like dried leaves been stepped on continuously. Jack took out his flashlight and aimed it at the door.
