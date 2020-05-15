@@ -61,7 +61,7 @@ It was almost sunset and Dr Hans intently stared through the glass window holdin
 
 ## The Eurasian Bear Encounter
 
-<img src="images/bear3.jpg" width="70%" alight="right"> Tracy's academic knowledge took over and she began to shout at the bear while frantically jumping up and down. 
+<img src="images/bear3.jpg" alighn="right" width="50%"> Tracy's academic knowledge took over and she began to shout at the bear while frantically jumping up and down. 
 
 "Hey bear, go away, I'm not your food. I'm too skinny anyways. hey bear. leave this place. go away." she shouted while yet slowly inching her way towards the Jeep. The bear stopped and look intently at her while yet sniffing the air above.
 
