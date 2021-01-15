@@ -4,16 +4,17 @@
 |-------:|------------:|
 | <br/> | "Anthropology demands an open-mind, its so open that your brains fall out and pure imagination fills in."<br/><br/> ―-- Dr. Hans Infallibus|
 
-A cold wind blew in as the driver side window slid down to reveal a young girl in her twenties. She stretched her had through the windows and handed her security pass to be swiped by the guard who replied ‘Your cleared to go Dr. Arugam".
+A cold wind blew in as the driver side window slid down to reveal a young girl in her thirties. She stretched her hand through the windows and handed her security pass to be swiped by the guard who replied ‘Your cleared to go Dr. Arugam".
 
 The barrier gate lifted and the jeep rolled down the paved road. Moment later after parking her jeep, Tracy swiped her key card through the second layer of the security doors to gain access to the CERN engineering division. Walking towards her was a well built muscular man that she recognized instantly. A rapid surge of emotions flooded her face which could not be contained and she shouted out "Hans".  
 
-Tracy had known Hans since the time he was ridiculed for proposing the possibilities of sauropods living in the middle of the Conganese jungles in central Africa almost fourteen years ago. Even though the analysis was impeccable, the procedures flawless, the documentation impervious to scrutiny, the conclusion were hilarious to say the least. Struck down with embarrassment and disappointment, Hans abandoned all hope in crypto zoology and pursued studies in particle physics, a field he continues to excel at. Fourteen years ago, that was his last encounter of anything crypto. Crypto zoology was an emerging idea in the nineteen nineties which never truly got traction nor any attention from the mainstream media. Although this particular field was ridiculed by the mainstream zoologists, some scientists actively pursue this due to their own philosophical beliefs and passions. Many crypto zoologists keep their thoughts and activities private until they have photographic or video evidence to share with the world. The fear of embarrassment still keeps most crypto zoologists under the public radar unto this day.
+Tracy had known Hans since the time he was ridiculed for proposing the possibilities of sauropod dinosaurs living in the middle of the Conganese jungles in central Africa almost fourteen years ago. Even though the analysis was impeccable, the procedures flawless, the documentation impervious to scrutiny, the conclusion were hilarious to say the least. Struck down with embarrassment and disappointment, Hans abandoned all hope in crypto zoology and pursued studies in particle physics, a field he continues to excel at. Fourteen years ago, that was his last encounter of anything crypto. Crypto zoology was an emerging idea in the nineteen nineties which never truly got traction nor any attention from the mainstream media. Although this particular field was ridiculed by the mainstream zoologists, some scientists actively pursue this due to their own philosophical beliefs and passions. Many crypto zoologists keep their thoughts and activities private until they had photographic or video evidence to share with the public. The fear of embarrassment still keeps most crypto zoologists under the public radar unto this day.
 
 The elevator door opened wide as Dr. Hans and Dr. Tracy stepped in. "Basement 13th floor I presume?" said Dr. Hans. The elevator doors closed with a small hiss and gently descended into the bowels of the earth. 
 
 Tracy replied, "Yes! I believe Dr Ervin has something he wants to show us. I hope he doesn’t have something completely reckless planned" To which Dr. Hans responded with a wide smile 
-   "If I didn’t know Ervin any better, I would be extremely worried if he did do anything responsible". Looking up at the white ceiling in the elevator, he continued "Reckless is his middle name! do you remember the time when Dr Ervin started working on the Higgs accelerator units and there was a major breakdown in the Solenoid unit? It took over 1 year to repair the damages with the tax payers dollars. I distinctly remember that project being buried due to the cost it carried"
+
+"If I didn’t know Ervin any better, I would be extremely worried if he did do anything responsible". Looking up at the white ceiling in the elevator, he continued "Reckless is his middle name! do you remember the time when Dr Ervin started working on the Higgs accelerator units and there was a major breakdown in the Solenoid unit? It took over 1 year to repair the damages with the tax payers dollars. I distinctly remember that project being buried due to the cost it carried"
 
 "Oh Indeed." replied Tracy, "I suppose since we’re in this together, we might as well enjoy the beauty and nature of the Swedish wilderness together. I know the lowlands are simple breathtaking. Just stay away from the upper hills. Too many bears come out from hibernation" she added. 
 
@@ -50,13 +51,13 @@ He continued with more concern in his voice "when Dr Sanata executed the final t
 A few sweat beads broke over his brow as he continued,
 "Something unexpected… Something irrational… Something evil"
 
-Dr. Ervin was serious about the cover up incident that took place 12 years ago. The incident was so complex it left millions of dollars of damages, and dismissed Dr Sanata from his work temporarily. Astonishingly something worth billions of dollars emerged, which equally warranted a cover up.
+Dr. Ervin was serious about the cover up incident that took place 12 years ago. The incident was so complex it left over hundred million dollars of damages in the Muon Solenoid, and he dismissed Dr Sanata from his work temporarily. Astonishingly something worth billions of dollars emerged from that disaster, which equally warranted a cover up. The Sunday Liberation newspaper even carried an article about the liquid coolant pipes in the hadron collider being sabotaged by terrorists causing millions of dollars of taxpayers money.
 
-Tracy stood up as she was getting impatient with the monologue and asked, "Dr Ervin, Is there something you would like to share with us?".
+Tracy stood up as she was getting impatient with the monologue and asked, _"Dr Ervin, Is there something you would like to share with us?"_.
 
-Ervin grinned and walked towards a large steal cabinet. He was still trembling with fear. His fingers were shaking while he punched in the 4 digit code to the right of the handle and pulled the handle. The steel refrigerator opened with a white mist to reveal something that no human has ever see before. 
+Ervin grinned and walked towards a large steal cabinet. He was still trembling with excitement or was it fear. His fingers were shaking while he punched in the 4 digit code to the right of the handle and pulled the handle. Instantly it hissed before the steel refrigerator opened with a white mist to reveal something that no human has ever seen before. 
 
-Tracy looked at the specimen and looked at Hans and said. "That’s a nice specimen you have Dr. Ervin! How did you manage to so intricately construct the Arthropleura"
+As soon as the cooling mist cleared the refrigerator, Tracy peered inside at the specimen and looked back at Hans and said. "That’s a nice reconstruction you have Dr. Ervin! How did you manage to so intricately construct the Arthropleura"
 
 With a heightened tone in his voice, Dr. Ervin replied "I didn’t make the damn thing, it made itself"
 
